@@ -7,4 +7,4 @@ I find this article interesting because the reason he got this implant in his br
 
 Wuji's comment:
 Though cybergs in fiction stories always tends to cause trouble to humanity
-It's glad to see them actually helping people in reality
+It's glad to see them actually helping people in reality.
