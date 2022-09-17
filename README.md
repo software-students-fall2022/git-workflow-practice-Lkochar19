@@ -5,3 +5,6 @@
 
 I find this article interesting because the reason he got this implant in his brain was because he was paralyzed from his neck down. This type of technology has real-life implication for people suffering from paralysis and physical trauma, so they are able to continue living and interacting with their environment through their minds, not necessarily through their body. 
 
+Wuji's comment:
+Though cybergs in fiction stories always tends to cause trouble to humanity
+It's glad to see them actually helping people in reality
